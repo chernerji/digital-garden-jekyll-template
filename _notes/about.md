@@ -6,3 +6,4 @@ hey , this is elijah's digital garden. i'm using this as a little test to create
 
 i'm still not sure what exact things ill write about here. i guess just what [[film]], tv show, video game im [[obsessed]] with. or my rare deep thoughts about [[uk politics]] and rants about the shit hole all around me. 
 
+![[SANY0315.jpg]]
