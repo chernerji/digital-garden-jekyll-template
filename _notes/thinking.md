@@ -1,0 +1,3 @@
+---
+title: improving my thinking
+---
